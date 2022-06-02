@@ -1,2 +1,2 @@
-# ⚔️[fricciolosaredteam.github.io](https://fricciolosaredteam.github.io)⚔️
+# ⚔️[fricciolosa.com](https://fricciolosa.com)⚔️
 Fricciolosa Red Team website
